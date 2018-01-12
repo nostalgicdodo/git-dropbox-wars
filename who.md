@@ -1,6 +1,7 @@
 #pew-poi
 who dis now?
 
+promise moi you'll shut
 whoarouy?
 
 whaisgoungoon?
